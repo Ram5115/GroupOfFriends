@@ -13,3 +13,9 @@ vamsivami18@gmail.com
    1893125
    vinodkumar.kastala@gmail.com
    "To thine own self be true, and it must follow, as the night the day, thou canst not then be false to any man" by William Shakespeare
+   
+   
+   SANDEEP REDDY DONTIREDDY
+   1892897
+   dsandeepreddy19@gmail.com
+   "Smile in the mirror. Do that every morning and you'll start to see a big difference in your life."
